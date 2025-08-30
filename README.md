@@ -45,7 +45,7 @@
 -->
 
 ## 📫 How to reach me  
-- 💼 [LinkedIn](https://www.linkedin.com/in/giulia-anfuso-5515581b)  
+- 💼 [LinkedIn](https://www.linkedin.com/in/giulia-anfuso-5515581b7)  
 - 📧 Email: giulia.anfuso.business@hotmail.com
 
 
